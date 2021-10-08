@@ -28,3 +28,142 @@
 - 初恋 (TVアニメ「月がきれい」EDIT ver.)
 - Carlin 317 10 Lady Of The L
 - 追梦人
+
+---
+## -_-
+- ヨスガノソラ メインテーマ -遠い空へ-
+- 笑顔の行方
+- 寻
+- theme of SSS
+- 致大学
+- Secret
+- 今日ぞハレの日、われらが祭り
+- Melody
+- 蓝色阴雨
+- 暗战之小巴上的邂逅
+- 時をかける神様
+- On écrit sur les murs
+- 青春のリバーブ
+- 梦园
+- 三年幻想郷
+- いつも何度でも
+- Scarborough Fair
+- PLANET
+- 40mP - 壊れたピエロ
+- インドア系ならトラックメイカー
+- 放課後ディストラクション
+- 拼凑的断音
+- 兄弟
+- my long forgotten cloistered sleep
+- 优美的小调
+- Utakata
+- 想念你
+- Somewhere
+- Silent Love
+- 潮鳴り
+- あいぞめ (piano version)
+- 春よ、来い
+- イタズラものたちの行進
+- おいでませ地獄街道
+- いのちの名前
+- When The Morning Comes
+- 화(華)
+- 青空
+- Main theme
+- 夏恋
+- 樱愿
+- 花 が とぶ 飛ぶ无损版
+- つのピアノの为の“夜桜と幽世の蝶”
+- 小樱
+- はにかみイカロス
+- Kimi Wo Omou Melodi
+- 色とりどりのお花のサラダ
+- 江上清风游
+- Tomorrow With You
+- 夜色钢琴曲
+- 最初
+- Always With Me
+- 意にそぐわぬリターニー
+- 花映「タマシイノハナ」
+- 東方萃夢想
+- 夏祭り、夢花火
+- 秋～華恋～
+- 眠りの吸血鬼
+- 粉雪につつまれて
+- Merry Christmas Mr. Lawrence
+- Outro
+- 夏に花が散る
+- theasp/novnc
+- Valder Fields
+- 阿郎恋曲
+- Booraye
+- 冰封雪域
+- Moonlight Shadow
+- 修炼森林
+- LOVE Theme from TIGA
+- Love Theme From Tiga超人迪加(钢琴REMIX)
+- 樱花樱花想见你
+- 三个人的时光 
+- 述懐
+- 雪千寻
+- Farewell（Piano Solo）
+
+---
+## mem
+- Hero Tonight
+- Booraye
+- Half-Moon Lake
+- 飨宴
+
+---
+## other
+- 伤心太平洋(葛漂亮版)
+- 飘雪
+- Para Para 樱之花
+- 只爱西经悲壮版
+- 银の龙の背に乗って
+- 風になる
+- Vagrant
+- キミのなかののび太
+- 笑傲江湖曲
+- 仙鹤情缘
+- 星语心愿
+- 风中有朵雨做的云
+- 冬季到台北来看雨 
+- 不如跳舞
+- Wild Wild Web
+- Dragostea Din Tei
+- Floorfiller
+- The magic key
+- Ein kleines Lied
+- 金色年华
+- 天涯
+- 飞舞
+- 水月
+- 容易受伤的女人
+- 妙音鸟
+- 爱情的骗子我问你
+- Walking In the Sun
+- 四季の歌
+- 帰り道
+- PLANET
+- 寻找
+- 快乐崇拜
+- Opening
+- 太多
+- 梦千年之恋
+- 断桥残雪
+- 独角戏
+- 你看你看月亮的脸
+- 慈禧秘密生活主题
+- 飘摇
+- 相约一九九八
+- 奇迹再现
+- 风吹草动，风云飞扬
+- Butter-Fly
+- brave heart
+- 好春光
+- 相思
+- Lonely
+- That Girl  
+- 蝶飞花舞
